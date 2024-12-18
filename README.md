@@ -1,4 +1,3 @@
-![](https://files.catbox.moe/3vwzte.png)
 
 > woah! hello from ***wherever you found me*** :3
 
