@@ -1,4 +1,10 @@
-## Hi there 👋
+![](https://files.catbox.moe/3vwzte.png)
+
+> woah! hello from ***wherever you found me*** :3
+
+You can call me **Sawyer** or **Maddie**  <sub> im cool wth both </sub> <sup> neither are my real name *`muehheehe`* </sup>
+
+~icee lover~, `they/bite`, ***italian-american***
 
 <!--
 **s4-wyer/s4-wyer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
