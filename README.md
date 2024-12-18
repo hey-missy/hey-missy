@@ -7,7 +7,7 @@ You can call me **Sawyer** or **Pup**  <sub> im cool wth both </sub> <sup> neith
 
 ***
 
-my kins are veronica (heathers) penny lamb (rtc) lydia deetz (bj) and shepard quaid (tmbs) my main c'links are heather chandler, aswell as maddie (oc), and anya (mw) amongst others.
+my kins are veronica (heathers) lydia deetz (bj) and shepard quaid (tmbs) my main c'links are heather chandler, aswell as maddie (oc), and anya (mw) amongst others.
 
 ***
 
