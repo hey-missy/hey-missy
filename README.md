@@ -7,7 +7,7 @@ You can call me **Sawyer** or **Puppy**  <sub> im cool wth both </sub>
 
 ***
 
-my kins are veronica (heathers) lydia deetz (bj) and shepard quaid (tmbs) my main c'links are heather chandler, aswell as an unnamed oc, amongst others.
+my kins are veronica *(heathers)* lydia deetz *((bj)* shepard quaid *(tmbs)* and heather chandler *(heathers)*
 
 ***
 
