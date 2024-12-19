@@ -1,5 +1,5 @@
 
-> woah! hello from most likely ponytown :3
+> woah! hello from ponytown :3
 
 You can call me **Sawyer** or **Puppy**  <sub> im cool wth both </sub>
 
