@@ -4,7 +4,7 @@ you can call me Maddie or Sawyer (more comfy with Sawyer)
 
 i use the prns pup/she/they, and often refer to xenos :)
 
-im 6teen and italian-american
+im 6teen and italian-american, im aroace and a fictionkin (veronica sawyer - heathers)
 
 ## interactions
 im almost always off tab whilst on pt, but im always up for c+h! (cuddle and hide)
