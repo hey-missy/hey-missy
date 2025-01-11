@@ -1,1 +1,1 @@
-# all info on my [prns.cc](https://pronouns.cc/@s4wyer)!!
+# all info on my [rentry](https://rentry.co/stainedcanines)!!
