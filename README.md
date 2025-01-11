@@ -1,1 +1,1 @@
-# all info on my [rentry](https://rentry.co/stainedcanines)!!
+# all info on my [carrd](https://stainedcanines.carrd.co/)!!
